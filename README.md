@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @beatrice-tash
+- 👀 I’m interested in economics, statistics, and mangas.
